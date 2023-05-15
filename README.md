@@ -26,5 +26,5 @@ _December/2021_
 
 <hr>
 
-#### Enjoy it 😉
+#### Enjoy 😉
 
